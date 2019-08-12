@@ -1,0 +1,2 @@
+# GhoshManjeet
+A self-motivated individual with a B.SC Degree in Mathematics.Skill sets include a self-learning motivation in Programming,Data Entry and Typing.Eager to work under any circumstances.Also very much capable of working under deadlines.Coming from a mathematical background,comfortable with numbers and strong analytical skills.Interactions can be made easy with my good communication skills.Will do my best to learn everything the world offers.Looking for interesting tasks to do here.
